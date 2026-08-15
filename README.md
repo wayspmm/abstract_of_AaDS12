@@ -7,4 +7,3 @@ PDF-версии конспектов можно найти по ссылке н
 - 4 модуль 1-ый курс: https://drive.google.com/drive/folders/13o8leyNCE-cmR4_O25p0xND4cbgOwlwa
 
 - 1 модуль 2-го курс: https://drive.google.com/file/d/1GM8JcHWtbjE-uCv-41XmrEXOGrvjKWa4/view
-
